@@ -1,1 +1,0 @@
-# mayodev2.github.io
